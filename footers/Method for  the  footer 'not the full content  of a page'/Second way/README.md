@@ -1,3 +1,3 @@
 
 
-Metoda na u≥oøenie  stopki na dole strony  przy nie pe≥nej zawartoúci treúci dokÛmentu g≥Ûwnego.
+Metoda na u≈Ço≈ºenie  stopki na dole strony  przy nie pe≈Çnej zawarto≈õci tre≈õci dokumentu g≈Ç√≥wnego.
